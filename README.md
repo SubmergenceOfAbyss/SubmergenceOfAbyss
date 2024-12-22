@@ -1,7 +1,10 @@
 <p align="center">
 
+chronically afk. if you act stupid near me ur getting hard blocked
 
-https://github.com/user-attachments/assets/8ec2a287-ca1c-4d5c-b158-5af6ac8f5318
+https://github.com/user-attachments/assets/7b63261a-aedf-4a3f-8e37-da7c2f99cdce
+
+
 
 
 </p>
